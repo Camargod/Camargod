@@ -1,4 +1,3 @@
-### Gosto de fazer bagunça :)
 
 <div align="center">
   <a href="https://github.com/Camargod">
